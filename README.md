@@ -1,5 +1,5 @@
 # Zygote-s-Source
 
-#LMAO YOU THOUGHT 
+# LMAO YOU THOUGHT 
 
-##learn how to code you fucking noob
+## learn how to code you fucking noob
